@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mpho947
 - 👀 I’m interested in a lot of activities
-- 🌱 I’m currently learning computer scinces in university of limpopo
+- 🌱 I’m currently learning mechanical engineering at Capricorn tvet college 
 - 💞️ I’m looking to collaborate on being a software developer
 - 📫 How to reach me braytonmpho@gmail.com
 - 😄 Pronouns: ...
